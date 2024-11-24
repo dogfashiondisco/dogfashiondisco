@@ -3,7 +3,7 @@
 
 ---
 
-c+h always ! i will likely not int or message first though out of nerves. pkmn fans int..? or anyone again idk
+c+h always ! i will likely not int or message first though out of nerves or being offtab playing smthing . pkmn fans int..? or anyone again idk
 
 ---
 
