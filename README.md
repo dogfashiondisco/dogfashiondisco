@@ -3,7 +3,7 @@
 
 ---
 
-c+h always ! i will likely not int or message first though out of nerves or being offtab playing smthing . pkmn fans int..? or anyone again idk. warning I am obviously not normal about cyrus (and I do not care if it seems "cringe")
+c+h always ! i will likely not int or message first though out of nerves or being offtab playing smthing . pkmn fans int..? or anyone again idk.
 
 ---
 
