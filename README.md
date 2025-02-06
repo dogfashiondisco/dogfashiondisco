@@ -3,7 +3,7 @@
 
 ---
 
-c+h always ! i will likely not int or message first though out of nerves or being offtab playing smthing, but feel free to talk if u want
+c+h always ! i will likely not int or message first though out of nerves being offtab, but feel free to talk if u want
 
 ---
 
