@@ -3,7 +3,7 @@
 
 ---
 
-wip. im offtab 80% of the time unless im lurking. if youre in my proximity im probably lurking your conversation (non maliciously)
+wip. im offtab 80% of the time unless im lurking. if youre in my proximity im probably watching your conversation (non maliciously)
 
 ---
 
