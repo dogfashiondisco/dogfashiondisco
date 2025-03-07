@@ -3,7 +3,7 @@
 
 ---
 
-wip. im offtab 80% of the time unless im lurking. if youre in my proximity im probably watching your conversation (non maliciously)
+wip. im offtab 80% of the time unless im lurking. if youre in my proximity im probably watching your conversation (non maliciously). i would say pkmn fans int but only int if you dont care abt Gen 4 .. LOL sorry
 
 ---
 
