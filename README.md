@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/dwvpgw.gif)
 
-only here for my bff. anti harassment anti censorship. i hide freely. i like fucked up shit & i only have 'iwec' on my profile because most people on here do not like nor understand that stuff. and that is very frustrating 2 me
+only here for my bff. anti harassment anti censorship. i hide freely. i like fucked up shit & i only have 'iwec' on my profile because most people on here r annoying n do not like nor understand that stuff. i Am nice though.. do not be afraid to int. c+h is always fine
 
 dnf : 15>, tiktok brainrot, purists, my ex, pro censorship postal fans (did you not pay any attention to the games)
 
