@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/vnn1hu.gif)
 
-anti harassment anti censorship. i hide freely. i like fucked up shit & i only have 'iwec' on my profile because most people on here r annoying. i Am nice though.. do not be afraid to int! c+h is always fine
+anti harassment anti censorship. i hide freely. i like extreme horror & i only have 'iwec' on my profile because most people on here r annoying. i Am nice though.. do not be afraid to int! c+h is always fine
 
 dnf : 15>, tiktok brainrot, pro censorship postal fans (did you not pay any attention to the games)
 
