@@ -4,4 +4,4 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=autumngray08&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<sub>dnf : 15> & tiktok brainrot. age is mostly a maturity thing🤔 if ur like 15 & chill w aligning views ur fine</sub>
+<sub>dnf : 15> & tiktok brainrot. 15 is fine as long as ur like chill i guess and wont ggive me braindamage</sub>
