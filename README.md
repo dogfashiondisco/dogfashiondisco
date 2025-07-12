@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/x7b70c.jpg)
+![](https://files.catbox.moe/7849en.jpg)
 
 <sub>anti harassment. i hide freely. i like extreme horror & i only have 'iwc' on my profile because most people on here r annoying. i Am nice though.. do not be afraid to int! c+h is always fine. i dont play pt often so if ud like 2 get 2 know me better umm ask 4 my disc (beware. i am awkward)</sub>
 
