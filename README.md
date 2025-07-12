@@ -4,4 +4,4 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=autumngray08&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<sub>dnf : 15> & tiktok brainrot,  you harass people over fiction or even in general (NO exceptions. you are not special)</sub>
+<sub>dnf : 15> & tiktok brainrot,  you harass people over fiction / in general (NO exceptions. you are not special)</sub>
