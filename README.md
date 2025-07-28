@@ -1,5 +1,3 @@
-<sub>rot rots / that thing, 7teen, w2i & c+h always</sub>
-
 ![](https://files.catbox.moe/3cwzn5.gif)
 
 <sub>anti harassment. i hide freely. i like extreme horror. do not be afraid to int as i swear im not mean. if youd like to get to know me better, ask for my disc? preferably read my rentry b4 doing so</sub>
