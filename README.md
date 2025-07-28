@@ -1,3 +1,5 @@
+![](https://files.catbox.moe/3cwzn5.gif)
+
 <sub>anti harassment. i hide freely. i like extreme horror & i only have 'iwc' on my profile because most people on here r annoying. i Am nice though.. do not be afraid to int! c+h is always fine. if youd like 2 get 2 know me better, ask 4 my disc?</sub>
 
 <sub>dnf : 15> & tiktok brainrot,  you harass people over fiction / in general (NO exceptions. you are not special)</sub>
