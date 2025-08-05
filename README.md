@@ -2,7 +2,7 @@
 
 <sub>anti harassment. i hide/block freely. i like extreme horror. do not be afraid to int as i swear im not mean. if youd like to get to know me better, ask for my disc? preferably read my rentry b4 doing so. all of my links are for mobile</sub>
 
-<sub>dnf. 15>, tiktok brainrot,  you harass people over fiction / in general + youre pro censorship in any way (**no** exceptions. you are not special & censorship is *never* good) </sub>
+<sub>dnf. 15>, tiktok brainrot,  you harass people over fiction / in general + youre pro censorship in any way (**no** exceptions. you are not special & censorship is *always* harmful) </sub>
 
 ![](https://files.catbox.moe/3cwzn5.gif)
 
