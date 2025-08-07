@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/kr5o1t.jpg)
 
-<sub>anti harassment. i hide/block freely. i like extreme horror. do not be afraid to int as i swear im not mean. if youd like to get to know me better, ask for my disc? preferably read my rentry b4 doing so. all of my links are for mobile</sub>
+<sub>anti harassment. i hide/block freely. i like extreme horror. all of my links are for mobile</sub>
 
 <sub>dnf. 15>, tiktok brainrot,  you harass people over fiction / in general or youre pro censorship in ANY way (**no** exceptions. censorship is *always* harmful & affects *everyone*, including you. read [this](https://www.britannica.com/art/Hays-Code) and [this](https://www.currentaffairs.org/news/britain-is-losing-its-free-speech-and-america-could-be-next)) </sub>
 
