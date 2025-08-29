@@ -4,6 +4,6 @@
 
 <sub>dnf. 15> iwc/don't be immature, tiktok brainrot,  you harass people over fiction / in general or youre pro censorship in ANY way (**no** exceptions. censorship is *always* harmful & affects everyone, including you. read [this](https://www.britannica.com/art/Hays-Code) and [this](https://www.currentaffairs.org/news/britain-is-losing-its-free-speech-and-america-could-be-next)) </sub>
 
-![](https://files.catbox.moe/0t4867.gif)
+![](https://files.catbox.moe/ma3h04.png)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=autumngray08&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
