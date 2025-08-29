@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/n16na4.jpg)
 
-![](https://files.catbox.moe/0t4867.gif)
+![](https://files.catbox.moe/ma3h04.png)
 
 <sub>anti harassment + censorship. i hide/block freely (no i wont unhide you or your friend). i like extreme horror. all of my links are for mobile. if i make u uncomfortable lmk / set boundaries cuz i cant read minds (i will listen, im not mean) *or* hide me. if u like duck/smackfire, zeroday, elephant, ect, get in my dms NOW!! feel free 2 ask 4 my discord</sub>
 
