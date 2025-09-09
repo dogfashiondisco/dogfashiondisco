@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/xin0qr.jpg)
 
-<sub>anti harassment + censorship　　i hide & block freely (no i wont unhide you or your friend)　　i like extreme horror　　fans of duck/smackfire, zeroday, elephant, ect, get in my dms NOW!　　ask 4 my disc</sub>
+<sub>anti harassment + censorship　　i hide & block freely (no i wont unhide you or your friend)　　i like extreme horror　　fans of duck/smackfire, zeroday, elephant & ect please add me !!　　ask 4 my disc</sub>
 
 <sub>dnf if you harass people over fiction / in general or youre pro censorship in ANY way (**no** exceptions) </sub>
 
