@@ -1,8 +1,8 @@
 ![](https://files.catbox.moe/xin0qr.jpg)
 
-<sub>anti harassment + censorship. i hide/block freely (no i wont unhide you or your friend). i like extreme horror. all of my links are for mobile. if i make u uncomfortable lmk / set boundaries cuz i cant read minds (i will listen, im not mean) *or* hide me. if u like duck/smackfire, zeroday, elephant, ect, get in my dms NOW! feel free 2 ask 4 my disc</sub>
+<sub>anti harassment + censorship　　i hide & block freely (no i wont unhide you or your friend)　　i like extreme horror　　fans of duck/smackfire, zeroday, elephant, ect, get in my dms NOW!　　ask 4 my disc</sub>
 
-<sub>dnf. 15> iwc/don't be immature, tiktok brainrot,  you harass people over fiction / in general or youre pro censorship in ANY way (**no** exceptions. censorship is *always* harmful & affects everyone, including you. read [this](https://www.britannica.com/art/Hays-Code) and [this](https://www.currentaffairs.org/news/britain-is-losing-its-free-speech-and-america-could-be-next)) </sub>
+<sub>dnf if you harass people over fiction / in general or youre pro censorship in ANY way (**no** exceptions) </sub>
 
 ![](https://files.catbox.moe/ma96hc.jpg)
 
