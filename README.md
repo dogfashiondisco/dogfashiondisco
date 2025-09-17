@@ -1,4 +1,4 @@
-<sub><sub>　　scream my name and let me know youre still alive!</sub></sub>
+<sub><sub>youre now my new obsession, and i dont even know your name!</sub></sub>
 
 ![](https://files.catbox.moe/xin0qr.jpg)
 
