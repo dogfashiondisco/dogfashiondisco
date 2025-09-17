@@ -1,3 +1,5 @@
+<sub><sub>　　scream my name and let me know youre still alive!</sub></sub>
+
 ![](https://files.catbox.moe/xin0qr.jpg)
 
 <sub>anti harassment + censorship. i hide & block freely (no i wont unhide you or your friend). i like extreme horror. fans of duck/smackfire, zeroday, elephant & ect please int! im not necessarily here to make friends, mostly just to stalk tyler</sub>
