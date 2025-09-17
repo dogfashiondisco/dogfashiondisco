@@ -2,7 +2,7 @@
 
 <sub>anti harassment + censorship　　i hide & block freely (no i wont unhide you or your friend)　　i like extreme horror　　fans of duck/smackfire, zeroday, elephant & ect please add me !!　　ask 4 my disc</sub>
 
-<sub>dnf if you harass people over fiction / in general or youre pro censorship in ANY way (**no** exceptions) </sub>
+<sub>dnf if you harass people over fiction / in general or youre pro censorship in ANY way (**no** exceptions. avoiding out of personal discomfort? perfectly reasonable! believing it shouldnt exist or bashing others? grow the fuck up) </sub>
 
 ![](https://files.catbox.moe/ma96hc.jpg)
 
