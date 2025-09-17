@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/xin0qr.jpg)
 
-<sub>anti harassment + censorship. i hide & block freely (no i wont unhide you or your friend). i like extreme horror. fans of duck/smackfire, zeroday, elephant & ect please add me !! ask 4 my disc</sub>
+<sub>anti harassment + censorship. i hide & block freely (no i wont unhide you or your friend). i like extreme horror. fans of duck/smackfire, zeroday, elephant & ect please int! im not necessarily here to make friends, mostly just to stalk tyler</sub>
 
 <sub>dnf if you harass people over fiction / in general or youre pro censorship in ANY way (**no** exceptions. avoiding out of personal discomfort? perfectly reasonable! believing it shouldnt exist or bashing others? grow the fuck up) </sub>
 
