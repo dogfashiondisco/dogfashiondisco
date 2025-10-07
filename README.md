@@ -1,4 +1,4 @@
-<sub>today is the day that the world burns away</sub>
+<sub>thought i heard you crying, thought i heard you dying. there will be nothing when im through with you ♡</sub>
 
 ![](https://files.catbox.moe/8hc2ed.gif)
 
