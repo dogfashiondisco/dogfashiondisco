@@ -6,6 +6,4 @@
 
 <sub>dnf if you harass people over fiction / in general or youre pro censorship in ANY way (**no** exceptions. avoiding out of personal discomfort? perfectly reasonable! believing it shouldnt exist or bashing others? grow up) </sub>
 
-![](https://files.catbox.moe/kdqk0o.gif)
-
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=autumngray08&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ff0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
