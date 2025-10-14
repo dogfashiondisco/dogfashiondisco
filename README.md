@@ -2,7 +2,7 @@
 
 ![](https://files.catbox.moe/8hc2ed.gif)
 
-<sub>anti harassment + censorship. i hide & block freely (no i wont unhide you or your friend). i like extreme horror. rn im into ninah & outlast trials</sub>
+<sub>anti harassment + censorship. i hide & block freely, no i wont unhide you or your friend</sub>
 
 <sub>dnf if you harass people over fiction / in general or youre pro censorship in ANY way (**no** exceptions. avoiding out of personal discomfort? perfectly reasonable! believing it shouldnt exist or bashing others? grow up😂) </sub>
 
