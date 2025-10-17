@@ -1,4 +1,4 @@
-<sub>But that can wait... I'm... **tired**. I'll just rest a while.</sub>
+<sub>🌾 But that can wait... I'm... **tired**. I'll just rest a while.</sub>
 
 ![](https://files.catbox.moe/9045vg.gif)
 
