@@ -1,6 +1,6 @@
-<sub>there will be nothing when im through with you</sub>
+<sub>But that can wait... I'm... **tired**. I'll just rest a while.</sub>
 
-![](https://files.catbox.moe/8hc2ed.gif)
+![](https://files.catbox.moe/9045vg.gif)
 
 <sub>anti harassment + censorship. i hide & block freely, no i wont unhide you or your friend</sub>
 
