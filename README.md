@@ -2,7 +2,7 @@
 
 ![](https://files.catbox.moe/9045vg.gif)
 
-<sub>anti harassment + censorship. i hide & block freely, no i wont unhide you or your friend</sub>
+<sub>actually anti harassment + censorship. i hide & block freely, no i wont unhide you or your friend</sub>
 
 <sub>dnf if you harass people over fiction / in general or youre pro censorship in any way (**no** exceptions. avoiding out of personal discomfort? perfectly reasonable! believing it shouldnt exist or bashing others? grow up) </sub>
 
