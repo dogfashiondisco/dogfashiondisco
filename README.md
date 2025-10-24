@@ -1,4 +1,4 @@
-<sub>all I need is for you to die, so you can be my true love tonight</sub>
+<sub>thats what i like about you, you might not be here tomorrow</sub>
 
 ![](https://files.catbox.moe/n16na4.jpg)
 
