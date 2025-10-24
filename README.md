@@ -1,3 +1,5 @@
+<sub>all I need is for you to die, so you can be my true love tonight</sub>
+
 ![](https://files.catbox.moe/n16na4.jpg)
 
 <sub>actually anti harassment + censorship. i hide & block freely, no i wont unhide you or your friend</sub>
