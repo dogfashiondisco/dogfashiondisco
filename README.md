@@ -1,6 +1,4 @@
-<sub>🌾 But that can wait... I'm... **tired**. I'll just rest a while.</sub>
-
-![](https://files.catbox.moe/9045vg.gif)
+![](https://files.catbox.moe/n16na4.jpg)
 
 <sub>actually anti harassment + censorship. i hide & block freely, no i wont unhide you or your friend</sub>
 
