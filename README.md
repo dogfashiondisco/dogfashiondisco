@@ -2,7 +2,7 @@
 
 ![](https://files.catbox.moe/n16na4.jpg)
 
-<sub>actually anti harassment + censorship. i hide & block freely, no i wont unhide you or your friend & it doesnt mean you "won" lmfao</sub>
+<sub>actually anti harassment + censorship. i hide & block freely, no i wont unhide you or your friend</sub>
 
 <sub>dnf if you harass people over fiction / in general or youre pro censorship in any way (**no** exceptions. avoiding out of personal discomfort? perfectly reasonable! believing it shouldnt exist or bashing others? grow uppp your ignorance has real consequences.  read [this](https://www.britannica.com/art/Hays-Code) & [this](https://www.currentaffairs.org/news/britain-is-losing-its-free-speech-and-america-could-be-next)) </sub>
 
