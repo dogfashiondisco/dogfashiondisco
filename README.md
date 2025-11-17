@@ -1,4 +1,4 @@
-<sub>thats what i like about you, you might not be here tomorrow</sub>
+<sub>you are beautiful indeed, dont take it personally</sub>
 
 ![](https://files.catbox.moe/n16na4.jpg)
 
