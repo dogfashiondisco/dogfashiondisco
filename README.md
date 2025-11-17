@@ -1,6 +1,6 @@
 <sub>gotta love that sound as im holding you down</sub>
 
-![](https://files.catbox.moe/n16na4.jpg)
+![](https://files.catbox.moe/uepco5.png)
 
 <sub>actually anti harassment + censorship. i hide & block freely, no i wont unhide you or your friend. collect my 5 github alts</sub>
 
