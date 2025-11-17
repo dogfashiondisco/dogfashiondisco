@@ -1,4 +1,4 @@
-<sub>you are beautiful indeed, dont take it personally</sub>
+<sub>you are beautiful indeed, dont take it personally, we are what we eat</sub>
 
 ![](https://files.catbox.moe/n16na4.jpg)
 
