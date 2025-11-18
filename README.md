@@ -1,4 +1,7 @@
 <p align="center">
+<sub>indulge perversion, we are morally doomed</sub></p>
+
+<p align="center">
   <img width="2000" height="213" src="https://files.catbox.moe/uepco5.png">
 </p>
 
