@@ -7,5 +7,5 @@ anti harassment + censorship. i hide & block freely, no i wont unhide you
 <br>
 or your friend... unless we r likeminded & i accidentally hid you (lmk if so)
 </br>
-everything is best viewed on desktop. antishippers dni idgafff
+everything is best viewed on desktop, despite me only playing on mobile
 </p>
