@@ -1,5 +1,5 @@
 <p align="center">
-currently flat. low/boring reps
+expect low/boring reps
 </p>
 
 <p align="center">
