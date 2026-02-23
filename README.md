@@ -1,8 +1,4 @@
 <p align="center">
-expect low/boring reps
-</p>
-
-<p align="center">
   <img width="463" height="249" src="https://files.catbox.moe/2beo5u.gif">
 </p>
 
