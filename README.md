@@ -1,5 +1,5 @@
 <p align="center">
-<sub><sub>best viewed on laptop. mobile player</sub></sub>
+<sub><sub>best viewed on laptop. mobile player<. i hide freely/sub></sub>
 </p>
 
 <p align="center">
