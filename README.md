@@ -1,5 +1,5 @@
 <p align="center">
-<small><small>best viewed on laptop. mobile player</small></small>
+<sub><sub>best viewed on laptop. mobile player</sub></sub>
 </p>
 
 <p align="center">
