@@ -3,10 +3,8 @@
 </p>
 
 <p align="center">
-anti harassment + censorship. i hide & block freely, no i wont unhide you
-<br>
-or your friend... unless we r likeminded & i accidentally hid you (lmk if so)
+im your kind, im your brother. i never had a lesson i ever learned
 </br>
-everything is best viewed on desktop, despite only playing pt on mobile
+and i love you, never learn not to love you
 </p>
 
