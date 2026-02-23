@@ -1,4 +1,8 @@
 <p align="center">
+<small><small>best viewed on laptop. mobile player</small></small>
+</p>
+
+<p align="center">
   <img width="450" height="347" src="https://files.catbox.moe/4qxie4.gif">
 </p>
 
