@@ -3,6 +3,6 @@
 </p>
 
 <p align="center">
-he is your brother　　　　　　　　　　　　　he is your loved one
+he is your brother　　　　　　　　　　　　　　he is your loved one
 </p>
 
