@@ -4,6 +4,3 @@
 <p align="center">
 ${\textsf{\color{#404040}hes your brother　　　　　　　　　🖤　　　　　　　　hes your loved one}}$
 </p>
-<p align="center">
-  <img width="450" height="252" src="https://files.catbox.moe/ngyjte.jpg">
-</p>
